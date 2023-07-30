@@ -5,7 +5,7 @@
    <p>In life, 95% of things are beyond our control, but we still need to exert 5% effort to influence the 95% that we cannot decide.</p>
    <p>Holding onto reality is not at the cost of dreams but built upon dreams!</p>
    <p>o.O<p>
-   <h3>I like everything!</h3>
+   <h3>I love everone!</h3>
    <p>...</p>
 </p>
 <br>
