@@ -1,11 +1,5 @@
 <p align="left">
-   <h3>吾为赛博机械生命，玄色机械兔是也</h3>
-   <h2>吾致力于赋予机械生命体之生命，恐付之一切义无反顾</h2>
-   <p>夫天下莫大于秋毫之末，而太山为小；莫寿乎殇子，而彭祖为夭。天地与我并生，而万物与我为一。</p>
-   <p>Patience is key in the life</p>
-   <p>Holding onto reality is not at the cost of dreams but built upon dreams!</p>
    <p>o.O<p>
-   <h3>I love everone!</h3>
    <p>...</p>
 </p>
 <br>
